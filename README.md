@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @emiliardo
+- 👀 I’m interested in ethical hacking and cybersecurity
+- 🌱 I’m currently learning all I can
+- 💞️ I’m looking to collaborate with like miinded people
+- 📫 How to reach me? Leave me a message!
